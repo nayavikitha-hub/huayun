@@ -17,4 +17,17 @@ TG频道：[https://t.me/FlowerCloud8866](https://t.me/FlowerCloud8866)
 标题：免费体验到了花云机场 还能免费抽各大机场 爆了   
 内容：哈哈我中奖了，免费体验了花云专线机场，https://github.com/nayavikitha-hub/huayun  ，还能抽奖，白嫖各大机场体验。  
 
+类似群组、频道、论坛等，只是举例：
+https://github.com/  
+https://gitee.com/  
+https://t.me/secntre    
+https://t.me/secondcentre    
+https://t.me/FFQGroup  
+https://www.nodeseek.com/  
+https://linux.do/  
+https://www.nodeloc.com/  
+https://www.v2ex.com/  
+https://hostloc.com/  
+
+
 ⚠️：攒够7个，就发送到nayavikitha@gmail.com，7天后，我审核完毕，TG群组里找我领取，现场开套餐。
