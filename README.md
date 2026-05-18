@@ -5,6 +5,7 @@
 ## 说明  
 由于花云机场月费比较贵，群组提供体验花云专线机场福利，也可以抽奖得到。
 ## 体验花云机场FlowerCloud 
-体验花云、体验FlowerCloud、体验专线机场、体验花云专线机场、体验花云机场、各大机场抽奖福利群。  
+[体验花云](https://github.com/nayavikitha-hub/huayun)、[体验FlowerCloud](https://github.com/nayavikitha-hub/huayun)、[体验专线机场](https://github.com/nayavikitha-hub/huayun)、[体验花云专线机场](https://github.com/nayavikitha-hub/huayun)、[体验花云机场](https://github.com/nayavikitha-hub/huayun)、[各大机场抽奖福利群](https://github.com/nayavikitha-hub/huayun)。  
+
 TG群组：[https://t.me/+ccL6IuRTxmU1MTJh](https://t.me/+ccL6IuRTxmU1MTJh)  
 TG频道：[https://t.me/FlowerCloud8866](https://t.me/FlowerCloud8866)  
