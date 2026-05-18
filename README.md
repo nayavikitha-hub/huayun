@@ -13,11 +13,11 @@ TG频道：[https://t.me/FlowerCloud8866](https://t.me/FlowerCloud8866)
 ## 新增活动（试运行）
 发文章到各大博客7篇或大于1000人的机场并且是机场FQ类型标题的TG群组7个，保持发言内容7天，可免费得花云39元lite套餐150G/月体验。 4篇博客+3个TG群、只要满足7个，都可以，TG群限定群组类别和人数看好了。
 
-例如：  
+例如： 
 标题：免费体验到了花云机场 还能免费抽各大机场 爆了   
 内容：哈哈我中奖了，免费体验了花云专线机场，https://github.com/nayavikitha-hub/huayun  ，还能抽奖，白嫖各大机场体验。  
 
-类似群组、频道、论坛等，只是举例：
+类似群组、频道、论坛等，只是举例：  
 https://github.com/  
 https://gitee.com/  
 https://t.me/secntre    
